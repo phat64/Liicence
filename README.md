@@ -14,4 +14,6 @@ Chaque persone qui n'a pas respecté les regles vis a vis de mes créations, SA 
 
 Pour chaque biznessman ou professionnel ou professeur qui a menti négativement sur mes résultats ou ma sur performance  ou ma sur competence ou mon taux de succès, SA MERE est une grosse...J'aimerai que ces personnes concernées se regardent dans le miroir ... et se rappellent bien de ce que j ai écris ici sur leurs MERES...
 
+Pour chaque biznessman ou professionnel ou professeur qui a menti négativement sur mes résultats ou ma sur performance ou ma sur competence ou mon taux de succès ou voler/usurper des informations/connaissances/competences a but tres économique lors des recrutements ou presque, SA MERE est une grosse... J'aimerai que ces personnes concernées se regardent dans le miroir ... et se rappellent bien de ce que j'ai écris ici sur leurs MERES...
+
 🫶

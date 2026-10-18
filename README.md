@@ -6,7 +6,7 @@ Chaque personne qui a diminué ma note volontairement négativement mensongereme
 
 Chaque personne qui a participé à ca, prendre des nulls et les garder longtemps ou faire semblant qu’ils sont très compétents…chaque persone qui a participé à ce system, SA MERE c’est la reine des putts qui se prend plein de bittes dans lecul et dans la boucle et qui avale…
 
-Chaque personne qui a trainé avec ce que j'ai fait, SA MERE qui l a alaité quand il était petit est une traiinée et une sale puttain qui suce plein de bittes et qui avale le foutrTout : au travail, hors temps de travail, scolaire 
+Chaque personne qui a trainé avec ce que j'ai fait ou a eu en 1 jour sur son repo plusieurs annees de travail avec ce que j'ai fait a prix tres reduit, SA MERE qui l a alaité quand il était petit est une traiinée et une sale puttain qui suce plein de bittes et qui avale le foutrTout : au travail, hors temps de travail, scolaire 
 Inclu le code generéOu qui a fait une "extortion" pour me prendre ce que j ai fait
 Meme signé avec mon accord
 
